@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Python**
 
-- 📫 How to reach me **On discord cmoidylan#0**
+- 📫 How to reach me **on mail contact@devdylan.cloud**
 
 
 
